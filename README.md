@@ -51,15 +51,6 @@ May these chapters lead you gently but surely to a voice only you can shape. �
 
 ---
 
-✍️ Created & Curated by  
-**Muhammad Naveed Ishaque**  
-*Content Creator | AI Writer | Narrative Simplifier*  
-*With the inner voice of Eks2 — the whisper behind the work.*  
-
-**Siraat AI Academy**  
-_“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”_
-
----
 
 📌 **About This Project**
 
@@ -74,3 +65,13 @@ All content here is inspired by original course material, but **re-crafted** wit
 🌐 Shared with care by [Siraat AI Academy](https://github.com/siraat-ai-academy)  
 🪶 *“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”*
 
+
+✍️ Created & Curated by  
+**Muhammad Naveed Ishaque**  
+*Content Creator | AI Writer | Narrative Simplifier*  
+*With the inner voice of Eks2 — the whisper behind the work.*  
+
+**Siraat AI Academy**  
+_“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”_
+
+---
