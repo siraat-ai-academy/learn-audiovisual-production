@@ -64,12 +64,12 @@ The purpose of this project is to **document, transform, and humanize** audiovis
 
 **🌿 A Note from the Heart**
 
-All content here is inspired by original course material, but **re-crafted** with personal learning notes, AI-assisted insight, and soulful narration.
-
 All learning in this repository is deeply inspired by original course material — but every lesson here has been lovingly transformed with personal reflections, creative narration, and character-led storytelling, making the journey truly our own.
 
 🌸 Here, we don’t just study content — we **live it, feel it, and gift it back to the world**, one whisper at a time.
 
+
+---
 
 🌐 Shared with care by [Siraat AI Academy](https://github.com/siraat-ai-academy)  
 🪶 *“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”*
