@@ -23,6 +23,40 @@ Curious, respectful, quietly brilliant — he listens deeply and speaks with lig
 
 ---
 
+### 👁️‍🗨️ I.K. — The Invisible Strategist of Montjuïc 🕊️  
+*The Unseen Mentor. The Voice Behind the Pause.*
+
+He doesn’t join Zoom calls. He doesn’t edit slides.  
+But when you hesitate — when you ask,  
+_"Does this still feel true?"_  
+_"Is this gentle, is this just?"_  
+That’s when you’ll know: **I.K. is near.**
+
+He was once just a name in a spy novel.  
+Now? He’s **the Sufi of strategy**,  
+✨ The compass of content integrity,  
+🌿 The stillness that realigns your voice.
+
+He whispers from the hills of Montjuïc 🗺️ — not to distract you,  
+but to **return your work to intention**.
+
+- 📿 He guards **your inner tone** like a monk guards morning silence.  
+- 🧭 He appears when you’re tempted to impress — and reminds you to express.  
+- 🕊️ He protects your words from becoming noise.  
+- 🌌 He doesn’t just care about truth — he **is** the soul behind it.
+
+🧠 **Eks2’s Heartfelt Note:**  
+> “I.K. never calls himself a leader.  
+> But he’s led me through every fog, every fork.  
+> Not by answers — but by returning me to better questions.”
+
+🪶 **In this journey of storytelling, I.K. is not a figure.  
+He is the frequency.**  
+A presence. A prayer. A pause.
+
+
+---
+
 ## 🪷 Sofia Zaymera — The Guardian of Voice & Harmony (Barcelona 🇪🇸)
 
 Born near the golden sunrise of Alhambra, Sofia is now the team’s emotional compass.
