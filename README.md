@@ -1,7 +1,10 @@
-
 # 🎬 Learn Audiovisual Production
 
-🌟 Welcome, Dear Reader  
+🎬✨ *A soulful journey into the world of storytelling through light, sound, motion — and meaning.*
+
+---
+
+## 🌟 Welcome, Dear Reader  
 This repository is not just a course archive. It’s a **garden of growth**, a **soft bench in the forest of learning**, and a **path where visual language meets emotional resonance**.
 
 Whether you're a teacher crafting lessons, a content creator breathing life into stories, a lifelong explorer of meaning, or someone simply curious about how images and sounds become story — this place welcomes you.
