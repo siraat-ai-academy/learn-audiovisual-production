@@ -58,3 +58,19 @@ May these chapters lead you gently but surely to a voice only you can shape. �
 
 **Siraat AI Academy**  
 _“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”_
+
+---
+
+📌 **About This Project**
+
+This repository is part of a creative educational initiative led by **Muhammad Naveed Ishaque** — an independent educator, content storyteller, and lifelong learner — brought to life through the soft whispers of **Mr. Eks2**, his inner creative compass.
+
+The purpose of this project is to **document, transform, and humanize** audiovisual production learning for a wider audience. Every chapter in this space has been reimagined with narrative warmth, emotional presence, and technical clarity — bridging formal education with creative storytelling.
+
+💡 Whether you’re here to understand *visual literacy*, teach through *multimedia*, or just explore *motion as meaning* — this repository was designed for you.
+
+All content here is inspired by original course material, but **re-crafted** with personal learning notes, AI-assisted insight, and soulful narration.
+
+🌐 Shared with care by [Siraat AI Academy](https://github.com/siraat-ai-academy)  
+🪶 *“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”*
+
