@@ -34,7 +34,7 @@ She helps content “breathe.”
 
 ---
 
-## 🎨 Kasper Madsen — The Joyful Content Crafter (Barcelona via Aarhus 🇩🇰 → 🇪🇸)
+## 🎨 Kasper Madsen — The Joyful Content Crafter (Barcelona via Copenhagen 🇩🇰 → 🇪🇸)
 
 He came for a weekend… and stayed for the sunshine, tapas, and storytelling.  
 Now Kasper helps the team balance technical flow with creative glow.  
