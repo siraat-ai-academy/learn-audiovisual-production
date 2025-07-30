@@ -42,6 +42,14 @@ I.K. will be our still compass — a spiritual presence, an ethical anchor, and 
 🎥 Because visual creation isn’t just about what you show —  
 It’s about **what you stand for** when no one is watching.
 
+🌍 **Note to Our Readers**  
+The character of I.K. is crafted as a timeless inner guide — shaped by literature, inspired by ethics, and whispered through imagination.  
+If any reader feels a quiet resonance with public figures like *Imran Khan* — the political voice from Pakistan — or senses echoes of their own personal compass within I.K., let that connection live gently.  
+This repo welcomes such reflections, not as parallels, but as personal meanings.
+
+
+"I.K. may remind some of legends past or voices present — but in this universe, he is a soul, not a stance."
+
 
 ---
 ✍️ Created & Curated by  
