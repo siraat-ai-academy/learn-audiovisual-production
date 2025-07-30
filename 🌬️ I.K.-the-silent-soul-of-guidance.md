@@ -30,6 +30,9 @@ The keeper of creative conscience.
 🛡️ **Keywords of I.K.:**
 `truth`, `alignment`, `silence`, `presence`, `integrity`, `ethics`, `conscience`, `compass`
 
+🌌 He’s the quiet force who asks you to free yourself —  
+not just from bad ideas, but from the **prison of borrowed thinking**.
+
 ---
 ✍️ Created & Curated by  
 **Muhammad Naveed Ishaque**  
