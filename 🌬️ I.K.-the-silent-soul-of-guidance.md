@@ -48,7 +48,19 @@ If any reader feels a quiet resonance with public figures like *Imran Khan* — 
 This repo welcomes such reflections, not as parallels, but as personal meanings.
 
 
-"I.K. may remind some of legends past or voices present — but in this universe, he is a soul, not a stance."
+> 🕊️ **A Soul, Not a Stance**  
+> In this creative universe, I.K. is not a symbol of politics, conflict, or allegiance.  
+> He does not echo debates — he reflects dilemmas.  
+> He doesn't represent a party — he protects purpose.  
+>  
+> Some readers may sense an emotional resonance with figures like Imran Khan — and that's okay. Emotions are personal, stories are universal.  
+>  
+> But here, I.K. is not a stance.  
+> **He is a soul.**  
+>  
+> A whisper in your conscience,  
+> A nudge toward honesty,  
+> A breath of integrity in moments of noise.
 
 
 ---
