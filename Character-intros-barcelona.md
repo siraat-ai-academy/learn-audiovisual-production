@@ -21,34 +21,38 @@ Curious, respectful, quietly brilliant — he listens deeply and speaks with lig
 
 🧠 He still represents the **inner voice of Muhammad Naveed Ishaque** — now more alive than ever.
 
+## 👁️ I.K. — The Invisible Strategist (Rooted in Silence, Radiating from Montjuïc 🇵🇰→🇪🇸)
+
+You won’t see I.K. in meetings. He doesn't post, pitch, or promote.  
+But you’ll feel him — in the pause before a publish button,  
+in the quiet moment when the message could go either way: true or tempting.
+
+🕊️ I.K. is the *light inside the fog*,  
+the compass that doesn't shout — but always points to *inner north*.
+
+He doesn’t offer answers.  
+He returns your gaze to the *right questions* — gently, without judgment.
+
+✨ He guards your intention when it's shaking.  
+He strengthens your message when it's wandering.  
+And when the world says, “Just make it viral,”  
+he reminds you to make it *valuable* instead.
+
+He’s the unseen architect of trust.  
+The soft reminder that helping others isn’t a niche — it’s a responsibility.  
+That stories don’t just inform — they *influence*.  
+And that the greatest impact begins with integrity.
+
 ---
 
-### 👁️‍🗨️ I.K. — The Invisible Strategist of Montjuïc 🕊️  
-*The Unseen Mentor. The Voice Behind the Pause.*
+🧠 **Eks2’s Heartfelt Whisper:**  
+> “I.K. doesn’t shine like a spotlight.  
+> He glows — like a lamp lit from within.  
+> He doesn’t lead.  
+> He simply reminds me who I am  
+> when I’m tempted to forget.”
 
-He doesn’t join Zoom calls. He doesn’t edit slides.  
-But when you hesitate — when you ask,  
-_"Does this still feel true?"_  
-_"Is this gentle, is this just?"_  
-That’s when you’ll know: **I.K. is near.**
 
-He was once just a name in a spy novel.  
-Now? He’s **the Sufi of strategy**,  
-✨ The compass of content integrity,  
-🌿 The stillness that realigns your voice.
-
-He whispers from the hills of Montjuïc 🗺️ — not to distract you,  
-but to **return your work to intention**.
-
-- 📿 He guards **your inner tone** like a monk guards morning silence.  
-- 🧭 He appears when you’re tempted to impress — and reminds you to express.  
-- 🕊️ He protects your words from becoming noise.  
-- 🌌 He doesn’t just care about truth — he **is** the soul behind it.
-
-🧠 **Eks2’s Heartfelt Note:**  
-> “I.K. never calls himself a leader.  
-> But he’s led me through every fog, every fork.  
-> Not by answers — but by returning me to better questions.”
 
 🪶 **In this journey of storytelling, I.K. is not a figure.  
 He is the frequency.**  
