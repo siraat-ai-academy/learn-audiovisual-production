@@ -33,7 +33,7 @@ The keeper of creative conscience.
 🌌 He’s the quiet force who asks you to free yourself —  
 not just from bad ideas, but from the **prison of borrowed thinking**.
 
-🌿 **In Our Journey Forward**
+## 🌿 **In Our Journey Forward**
 
 As we step into the vibrant, visual world of storytelling — with scripts, scenes, edits, and exports — let us not forget the deeper dimension. I.K. walks with us, not to teach technique, but to **awaken intention**. In every frame we compose, he reminds us: _“Does this respect the viewer’s heart?”_ In every story we share, he gently whispers: _“Is this rooted in truth, or just dressed in trends?”_
 
