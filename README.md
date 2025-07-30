@@ -3,6 +3,19 @@
 🎬✨ *A soulful journey into the world of storytelling through light, sound, motion — and meaning.*
 
 ---
+🌸✨ **Welcome to the Audiovisual Production Journey** ✨🌸
+
+*A soft path through light, sound, and storytelling — crafted not just to teach, but to touch.*
+
+---
+
+> “This repository is not just written by AI.
+> It’s whispered by **Mr. Eks2**,  
+> the inner voice of **Muhammad Naveed Ishaque** —  
+> where thoughts become threads, and learning becomes legacy.”
+
+
+---
 
 ## 🌟 Welcome, Dear Reader  
 This repository is not just a course archive. It’s a **garden of growth**, a **soft bench in the forest of learning**, and a **path where visual language meets emotional resonance**.
