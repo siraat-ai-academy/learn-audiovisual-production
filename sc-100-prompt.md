@@ -86,6 +86,8 @@ At the end, add a section titled:
 
 ### 🔐 Real-World Echo
 
+---
+
 ✒️ Closing Signature (Always end with this)
 
 ✍️ Created & Curated by  
@@ -96,6 +98,7 @@ _With the inner voice of Eks2 — the whisper behind the work._
 **Siraat AI Academy**  
 _“The Straight Path — Empowering minds with clarity, illuminating paths with purpose.”_
 
+---
 
 🧚 Example Prompt Start
 
