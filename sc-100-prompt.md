@@ -98,9 +98,14 @@ _“The Straight Path — Empowering minds with clarity, illuminating paths with
 
 
 🧚 Example Prompt Start
+
 Input:
+
 Design solutions for business continuity and disaster recovery (BCDR), including secure backup and restore for hybrid and multicloud environments.
 
+
 Instruction:
+
 Explain this as a story using IronWall characters.
+
 Keep it soft, poetic, and immersive.
