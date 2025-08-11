@@ -1,4 +1,3 @@
-```markdown
 ## 👁️ I.K. — The Invisible Ethicist of Storytelling
 
 🕊️ *Born in Fiction. Forged in Faith. Reborn in You.*
